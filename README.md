@@ -1,1 +1,1 @@
-# Help_you_to_learn
+# Help you to learn some technology in easy way with best resources
